@@ -1,4 +1,4 @@
 # pythoncode
 Hello ! The transfer window is finally over! <br>
 Joao's are here!
-wwwww
+They are training! Also in the next squad against osasuna
